@@ -11,7 +11,7 @@ l4r and l4c are self-explanatory id think
 
 BOUNDARIES(?)
 
--**inspo is fine!!** everything is a derivative :) just dont straight up copy my ponies
+-**inspo is fine!!** don't just copy the entire pony though
 
 -**cuddles and hiding** are always **okay** and encouraged!!! love it
 
